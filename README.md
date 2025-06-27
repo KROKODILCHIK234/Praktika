@@ -1,1 +1,1 @@
-# Praltika
+# Praktika
